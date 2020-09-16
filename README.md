@@ -1,1 +1,1 @@
-Weekly Log Repository for Wan Muhammad Rayhan - 1806241210
+Weekly Log Repository for Wan Muhammad Rayhan Arwindra - 1806241210
